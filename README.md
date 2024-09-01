@@ -2,7 +2,7 @@
 - 👀 I’m interested in dancing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on intent
-- 📫 How to reach me don't
+- 📫 How to reach me - don't
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
